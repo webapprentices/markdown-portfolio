@@ -1,0 +1,1 @@
+**NOTE TO HIRING MANAGERS AND RECRUITERS:** When contacting me about **Manager** and **Director** positions, please list the job titles of each direct report. If the job title you are presenting is **Developer** and the opportunity has no direct reports, then you likely missed the mark. 
